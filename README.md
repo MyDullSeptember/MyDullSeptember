@@ -11,24 +11,3 @@ nya!!
 ![776d7851a6bc77075b83dfee7c84fba9](https://github.com/user-attachments/assets/0142298f-430b-4256-972c-4eb2aacf2901)
 
 
-.
-
-
-.
-
-
-.
-
-
-
-
-
-
-the sillies 
-
-
-<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/eeeed900-e05f-4191-916f-d86cc66fe873" />
-<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/c94b66f8-72c0-4056-ad0c-0f9d58853824" />
-<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/c7232e3b-0f3b-4c30-bc9b-bf0f65643b6a" />
-
-TEAMATES FRIENDS TO HELL WITH THAT/ref
