@@ -9,4 +9,4 @@ nya!!
 [straw](https://kiraahah.straw.page/)  .        [ata](https://painthatripsurinsidesout.atabook.org/)
 
 
-![](https://komarev.com/ghpvc/?username=your-github-MyDullSeptember&color=red) 
+
